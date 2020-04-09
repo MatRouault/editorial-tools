@@ -1,4 +1,4 @@
-# editorial-tools
+# Editorial tools
 Usefull online tools and resources I use in my editorial workflow
 
 # Free beautiful Images
