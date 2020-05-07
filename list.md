@@ -24,3 +24,6 @@ https://www.si.edu/openaccess
 ## https://usesmash.com/
 ## https://isometric.online
 ## https://www.karthiksrinivas.in/charco
+## https://undraw.co/illustrations
+## https://www.drawkit.io/
+## https://app.streamlineicons.com/freemojis
