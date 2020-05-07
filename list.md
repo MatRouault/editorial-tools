@@ -8,5 +8,19 @@ https://undraw.co/
 https://stock.adobe.com/fr/vectors
 ## Unsplash
 https://unsplash.com/
-##Smithsonian Open Access
+## Smithsonian Open Access
 https://www.si.edu/openaccess
+
+# Illustration
+## https://www.uistore.design/items/free-remote-work-illustrations
+## https://stories.freepik.com/
+## https://sketchvalley.com/
+## https://getillustrations.com/illustration-packs/
+## https://www.manuelalangella.com/retroooo-folks
+## https://www.pixeltrue.com/free-illustrations
+## https://lab.streamlineicons.com
+## https://www.openpeeps.com
+## https://www.manypixels.co/gallery/
+## https://usesmash.com/
+## https://isometric.online
+## https://www.karthiksrinivas.in/charco
